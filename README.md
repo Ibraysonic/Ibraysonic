@@ -1,0 +1,4 @@
+- 👋 Hola soy Ibraysonic mejor conocido en discord como Ibray.
+- 👀 [Soy desarrollador de bots de discord y paginas web](https://www.sonic-bot.ga)
+- 🌱 [Desarrollador de Sonic Bot ¡invitalo!](https://dsc.gg/sonic.bot)
+- 📫 [Unete a mi sevidor](https://dsc.gg/ibraysonic) 
